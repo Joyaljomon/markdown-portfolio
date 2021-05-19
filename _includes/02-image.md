@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://image.freepik.com/free-photo/top-view-desk-items-blue-background_23-2148604895.jpg
